@@ -1,1 +1,0 @@
-# nagulakrishnasri.io
